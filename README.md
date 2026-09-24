@@ -219,4 +219,4 @@ Overlord II is offered as a full free version with all features and updates incl
 Take your place as the Lord of Chaos today! Download Overlord II and unleash havoc in a charming yet unsuspecting world!
 
 ---
-**Last updated:** 2026-09-24 07:10:38 UTC
+**Last updated:** 2026-09-24 13:11:29 UTC
